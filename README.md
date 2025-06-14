@@ -1,1 +1,1 @@
-<img width="1677" alt="large" src="https://github.com/user-attachments/assets/b670dc1a-4b4b-4dec-8131-cb253897e3a9" />
+![desktop-design-dark](https://github.com/user-attachments/assets/408790b5-ebcb-4b74-92c6-49b81e613830)
